@@ -1,4 +1,4 @@
-# Welcome to the team! 🎉
+# Welcome to the team (public)! 🎉
 
 ## Firewalls
 
